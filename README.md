@@ -1,0 +1,1 @@
+# PatikaWeek4HaftaKapanıs
